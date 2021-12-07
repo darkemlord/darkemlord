@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working on **Ravenous**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: emanuelcaro561@gmail.com</h3>
 <p align="left">
 </p>
 
